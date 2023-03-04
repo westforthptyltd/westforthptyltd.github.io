@@ -13,4 +13,4 @@ Westforth Pty Ltd was established as a supplier and exporter of secondary fiber 
 
 If you have any enquiries, please feel free to call or text: 
 
-Henry Sutanto at (+61) 478746070, or email us directly at westforthptyltd@yahoo.com
+Henry Sutanto at **(+61) 478746070**, or email us directly at **westforthptyltd@yahoo.com**
