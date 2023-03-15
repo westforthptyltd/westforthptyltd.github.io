@@ -1,5 +1,6 @@
 name: westforth' site
 title: null
 remote_theme: pages-themes/minimal@v0.2.0
+logo: https://user-images.githubusercontent.com/116779799/222876303-e6552051-c820-49df-82dd-ff74ccf7bbda.png
 plugins:
 - jekyll-remote-theme # add this line to the plugins list if you already have one
