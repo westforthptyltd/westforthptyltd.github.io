@@ -18,10 +18,11 @@ Henry Sutanto at **(+61) 478746070**, or email us directly at **westforthptyltd@
 
 ## Products
 
+
 <img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(1)/WhatsApp%20Image%202022-02-15%20at%2012.12.10%20PM.jpeg"  width="50%" height="50%">
 <img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(1)/WhatsApp%20Image%202022-02-15%20at%2012.12.11%20PM%20(1).jpeg"  width="50%" height="50%">
 <img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(1)/WhatsApp%20Image%202022-02-15%20at%2012.12.11%20PM.jpeg"  width="50%" height="50%">
-<img src=""  width="50%" height="50%">
+
 ### OCC (Old Corrugated Containers)
 
 Used boxes and sheets of corrugated board of
@@ -29,12 +30,28 @@ various qualities, may include 5 % of other
 packaging papers and boards. 
 
 
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(2)/IMG_0469.jpg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(2)/NCC%20NZ%2010.jpg"  width="50%" height="50%">
+<img src=""  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(2)/index.jpg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(2)/index4.jpg"  width="50%" height="50%">
+
 ### NCC (New Corrugated Containers)
 
 New cuttings of boxes and sheets of corrugated board of
 various qualities, may include up to 0.5 % of other
 packaging papers and boards.  This is pre-consumer grade.
 
+
+<img src=""  width="50%" height="50%">
+<img src=""  width="50%" height="50%">
+<img src=""  width="50%" height="50%">
+<img src=""  width="50%" height="50%">
+<img src=""  width="50%" height="50%">
+<img src=""  width="50%" height="50%">
+<img src=""  width="50%" height="50%">
+<img src=""  width="50%" height="50%">
+<img src=""  width="50%" height="50%">
 
 ### SOP (Sorted Office Papers)
 
