@@ -32,7 +32,6 @@ packaging papers and boards.
 
 <img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(2)/IMG_0469.jpg"  width="50%" height="50%">
 <img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(2)/NCC%20NZ%2010.jpg"  width="50%" height="50%">
-<img src=""  width="50%" height="50%">
 <img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(2)/index.jpg"  width="50%" height="50%">
 <img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(2)/index4.jpg"  width="50%" height="50%">
 
@@ -43,11 +42,11 @@ various qualities, may include up to 0.5 % of other
 packaging papers and boards.  This is pre-consumer grade.
 
 
-<img src=""  width="50%" height="50%">
-<img src=""  width="50%" height="50%">
-<img src=""  width="50%" height="50%">
-<img src=""  width="50%" height="50%">
-<img src=""  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(3)/41b47ad8-bbc6-4696-bd15-7276e680c224.JPG"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(3)/4c144a79-f2df-476e-a3f6-a421c1c4afa7.JPG"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(3)/WhatsApp%20Image%202019-07-03%20at%2009.43.00.jpeg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(3)/afa9d5b6-2990-499e-8efe-e26e368951c4.JPG"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(3)/ff9255b6-7847-4215-abab-47ed34e8f73e.JPG"  width="50%" height="50%">
 <img src=""  width="50%" height="50%">
 <img src=""  width="50%" height="50%">
 <img src=""  width="50%" height="50%">
