@@ -16,7 +16,11 @@ If you have any enquiries, please feel free to call or text:
 Henry Sutanto at **(+61) 478746070**, or email us directly at **westforthptyltd@yahoo.com**
 
 
+
+
+
 ## Products
+
 
 
 <img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(1)/WhatsApp%20Image%202022-02-15%20at%2012.12.10%20PM.jpeg"  width="50%" height="50%">
@@ -47,10 +51,6 @@ packaging papers and boards.  This is pre-consumer grade.
 <img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(3)/WhatsApp%20Image%202019-07-03%20at%2009.43.00.jpeg"  width="50%" height="50%">
 <img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(3)/afa9d5b6-2990-499e-8efe-e26e368951c4.JPG"  width="50%" height="50%">
 <img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(3)/ff9255b6-7847-4215-abab-47ed34e8f73e.JPG"  width="50%" height="50%">
-<img src=""  width="50%" height="50%">
-<img src=""  width="50%" height="50%">
-<img src=""  width="50%" height="50%">
-<img src=""  width="50%" height="50%">
 
 ### SOP (Sorted Office Papers)
 
@@ -63,21 +63,41 @@ required (NCR), less than 5 % unbleached fibres
 including manila envelopes and file covers
 
 
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(4)/BBC%20KCB%20ES%20AU%2011.jpg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(4)/BBC%20KCB%20ES%20AU%2015.jpg'50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(4)/BBC%20KCB%20ES%20AU%2021.jpg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(4)/WhatsApp%20Image%202019-07-12%20at%2012.30.12.jpeg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(4)/thumbnaial.jpg"  width="50%" height="50%">
+
 ### BBC (Box Board Cuttings)
 
 Consists of new cuttings of paperboard used in the manu- facture of folding cartons, set-up boxes and similar box- board products.
 May or may not include Kraft Carrier Board.  This is pre consumer grade.
 
 
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(5)/WhatsApp%20Image%202022-09-16%20at%204.51.15%20PM%20(1).jpeg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(5)/WhatsApp%20Image%202022-09-16%20at%204.51.15%20PM.jpeg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(5)/WhatsApp%20Image%202022-09-16%20at%204.51.16%20PM.jpeg"  width="50%" height="50%">
+
 ### Over-Issue News (OI or OIN)
 
 Consists of unused, overrun newspapers printed on news- print, containing not more than the normal percentage of rotogravure and colored sections.
 
 
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(6)/Oceala%20OIPAMS%2001.jpg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(6)/Oceala%20OIPAMS%2002.jpg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(6)/Oceala%20OIPAMS%2003.jpg"  width="50%" height="50%">
+
 ### Magazines (OMG)
 
 Consists of coated magazines, catalogues, and similar print- ed materials. May contain a small percentage of uncoated news-type paper.
 
+
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(7)/P1030420.jpg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(7)/P1030421.jpg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(7)/P1030422.jpg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(7)/P1030423.jpg"  width="50%" height="50%">
+<img src="https://github.com/westforthptyltd/westforthptyltd.github.io/blob/main/products/product%20(7)/P1030424.jpg"  width="50%" height="50%">
 
 ### Flyleaf Shavings
 
